@@ -2,7 +2,7 @@
 -  I’m interested in digital media art, live performance & creative coding 🍄
 - 🐍 I’m currently learning Python 
 -  I’m looking to collaborate on artistic projects 
-- 📫 How to reach me on IG @luzefimero
+- 📫 Reach out to me on IG @luzefimero
 
 <!---
 <3
